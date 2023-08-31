@@ -6,6 +6,8 @@
 
 "I have a dream." Martin Luther King
 
+The truth will set you free. "The Bible"
+
 "Do not go gentle into that goodnight" - Dylan Thomas
 
 "I think ya sent her a little-bit too hard there bud" - A Drunk Canadian Guy
